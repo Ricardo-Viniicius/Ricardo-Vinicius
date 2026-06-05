@@ -12,7 +12,6 @@
 - ☕ Apaixonado por café e por aprender coisas novas todos os dias.
 
 📫 Como me encontrar
-- LinkedIn: www.linkedin.com/in/ricardo-viniicius
 - Email: capitoneeves@gmail.com
 - WhatsApp: +55 87 8159-3646
 
